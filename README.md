@@ -1,4 +1,3 @@
 - 😍 Olá, meu nome é Gabriely Ductra Alflen
 - ❤️ Estudo na escola CCM AAB
 - 🤭 Eu AMO estudar
-- 
